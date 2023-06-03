@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python and Data Science
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on learning Data Science together
-- 📫 How to reach me by Dm me in my insta directly faisalpasha_5677
+- 📫 Feel free to Dm me in instagram directly @faisalpasha_5677
 
 
 
